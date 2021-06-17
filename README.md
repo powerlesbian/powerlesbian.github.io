@@ -1,5 +1,5 @@
 # powerlesbian.github.io
-##just checking things out
+## just checking things out
 
 The discovery of fire was a major turning point for early humans.  It gave us the ability to manipulate our environment, to keep warm, to fend away predators and to cook food facilitating better absorption of nutrients and killing harmful bacteria. Judging from life now, one can say it made life better.  In our lifetimes, information technology has transformed the world once again from how human beings communicate and coordinate with one another, share resources, to how we organise our lives and our institutions. 
 
